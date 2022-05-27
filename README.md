@@ -1,4 +1,4 @@
-**Hi there, I'm Finley/Vex ([@VeraxonHD](https://github.com/veraxonhd)). I'm a computer science student from the UK, in my final year at University.**
+**Hi there, I'm Finley/Vex ([@VeraxonHD](https://github.com/veraxonhd)). I'm a computer science student in my final year at University.**
 
 I'm 21 years old and from the UK. I identify as non-binary, and my pronouns are _He/She/They_.
 
