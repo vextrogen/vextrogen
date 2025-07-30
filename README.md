@@ -1,4 +1,4 @@
-**Hi there, I'm Luna/Vex ([@VeraxonHD](https://github.com/veraxonhd)). I'm a BSc (Hons) Computer Science Graduate of the University of Reading**
+**Hi there, I'm Luna. I'm a BSc (Hons) Computer Science Graduate of the University of Reading**
 
 I'm 23 years old and from the UK. My pronouns are she/her
 
